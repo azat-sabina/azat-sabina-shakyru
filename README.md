@@ -1,1 +1,0 @@
-# azat-sabina-shakyru
